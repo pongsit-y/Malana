@@ -1,6 +1,6 @@
 # Malana
 1. O, 
-2. Beer, 
+2. Beer, pongsit
 3. Tangmo, 
 4. Tuck, 
 5. Pang, 

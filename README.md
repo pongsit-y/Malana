@@ -5,6 +5,3 @@
 4. Tuck, 
 5. Pang, 
 6. Rose......................
-
-admsnmdsndnf
-5555555 sas

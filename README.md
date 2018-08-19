@@ -1,10 +1,10 @@
 # Malana
-1. O, 
-2. Beer, 
-3. Tangmo,
-4. Tuck, 
-5. Pang, 
-6. Rose
+1. olo, 
+2. Beerlnwza, 
+3. Tangmono,
+4. RawTuck, 
+5. PongPang, 
+6. Rose bp
 
 admsnmdsndnf
 5555555

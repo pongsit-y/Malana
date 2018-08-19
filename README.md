@@ -4,6 +4,4 @@
 3. Tangmo, 
 4. Tuck, 
 5. Pang, 
-6. Rose
-
-admsnmdsndnf
+6. Rose (Little Fufu)
